@@ -1,4 +1,4 @@
-## Welcome to Snapchatte
+## Welcome to Snapchat
 
 ## Bonus
 
